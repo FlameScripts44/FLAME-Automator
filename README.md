@@ -37,7 +37,7 @@ Feel free to reach out for:
 - In-depth email deliverability consulting
 - Further script modifications to fit your unique needs
 
-You can contact me directly via email at **Bryanezekiel111** , **Bryaneze112@gmail.com** . Let's create magic together!
+You can contact me directly via email at **Bryanezekiel111@gmail.com** , **Bryaneze112@gmail.com** . Let's create magic together!
 
 
 ---
